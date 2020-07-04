@@ -2,6 +2,8 @@
 
 [Restorative Justice on the Rise](https://restorativejusticeontherise.org/) - [apple podcasts](https://podcasts.apple.com/us/podcast/restorative-justice-on-the-rise/id918262205)
 
+> Restorative Justice on The Rise is an international live dialogue via Webcast and Telecouncil platform, held weekly, reaching an international constituency of a wide spectrum of individuals, organizations, professionals, academics, practitioners, stakeholders and beyond.
+
 **Media That Matters: Public Dialogue On Justice**
 > To provide connection, advocacy, education and inspired action as a public service to individuals and communities seeking to proactively improve relationships and structures within their spheres and our world.
 
@@ -832,77 +834,190 @@ Kay works primarily as a trainer in the [peacemaking circle process](https://www
 #### [William Bledsoe, Ph.D "From Suppression to Expression"](https://podcasts.apple.com/us/podcast/william-bledsoe-ph-d-from-suppression-to-expression/id918262205?i=1000424172066) - NOV 19, 2018
   > Restorative Way was founded in 2001 by William A. Bledsoe, Ph.D. to advance the art and science of restorative communication. Since then, Restorative Way has helped thousands of people in schools, families, workplaces, justice systems and correctional facilities. Restorative Way Communication™ is based on the very latest research in the neuroscience of communication. This research […]
 
-#### [The Neuroscientific A-ha of Empathy & How We Do Justice with Sarah Peyton](https://podcasts.apple.com/us/podcast/neuroscientific-ha-empathy-how-we-do-justice-sarah/id918262205?i=1000424687001) - NOV 27, 2018
-  > The Neuroscientific A-ha of Empathy & How We Do Justice to Ourselves, One Another & Our World with very special guest, author and international speaker Sarah Peyton. Key Points: How empathy changes the brain How our brains retain neuroplasticity no matter our age Left-Right Hemispheres Shifting out of a punitive mindset Receiving ourselves and others […]
+#### [The Neuroscientific A-ha of Empathy & How We Do Justice with Sarah Peyton](https://restorativejusticeontherise.org/the-neuroscientific-a-ha-of-empathy-how-we-do-justice-with-sarah-peyton/) - NOV 27, 2018
 
-#### [Restorative Cities with Teiahsha Bankhead, Ph.D and Tyreece Sherrills](https://podcasts.apple.com/us/podcast/restorative-cities-teiahsha-bankhead-ph-d-tyreece-sherrills/id918262205?i=1000424744135) - NOV 28, 2018
-  > Teiahsha Bankhead is Executive Director of Restorative Justice for Oakland Youth, and Tyreece Sherrills has served as a Youth Facilitator at RJOY. They will share their efforts to create Restorative Cities in CA and beyond. Both will be Guides during the Connection Series at Level 2 and up!
+> The Neuroscientific A-ha of Empathy & How We Do Justice to Ourselves, One Another & Our World with very special guest, author and international speaker [Sarah Peyton](https://empathybrain.com/).
 
-#### [Humanizing Education & Reconnecting People: The Potential of Restorative Justice in Education](https://podcasts.apple.com/us/podcast/humanizing-education-reconnecting-people-potential/id918262205?i=1000424979662)  > What do School-Wide Restorative Practices look like in the real world? Restorative Justice on The Rise and Living Justice Press are excited and pleased to invite you to this fabulous opportunity to hear from author, educator and RJE (Restorative Justice in Education) - DEC 2, 2018
- expert, Martha Brown, PhD. Her new book, Creating Restorative Schools: Setting Up Schools […]
+> How empathy changes the brain
+> How our brains retain neuroplasticity no matter our age
+> Left-Right Hemispheres
+> Shifting out of a punitive mindset
+> Receiving ourselves and others in resonance and empathy
+> Where fear takes us--the effect of fear on our brain
+
+#### [Restorative Cities with Teiahsha Bankhead, Ph.D and Tyreece Sherrills](https://restorativejusticeontherise.org/restorative-cities-with-teiahsha-bankhead-ph-d-and-tyreece-sherrills/) - NOV 28, 2018
+
+> Teiahsha Bankhead is Executive Director of [Restorative Justice for Oakland Youth](https://restorativejusticeontherise.org/restorative-cities-with-teiahsha-bankhead-ph-d-and-tyreece-sherrills/), and Tyreece Sherrills has served as a Youth Facilitator at RJOY. They will share their efforts to create Restorative Cities in CA and beyond. Both will be Guides during the Connection Series at Level 2 and up!
+
+#### [Humanizing Education & Reconnecting People: The Potential of Restorative Justice in Education](https://restorativejusticeontherise.org/creatingrestorativeschools/) - DEC 2, 2018
+
+> Restorative Justice on The Rise and Living Justice Press are excited and pleased to invite you to this fabulous opportunity to hear from author, educator and RJE (Restorative Justice in Education) expert, [Martha Brown, PhD](https://www.rjaeconsulting.com/martha-brown). Her new book, [Creating Restorative Schools: Setting Up Schools to Succeed (Living Justice Press)](https://www.livingjusticepress.org/index.asp?SEC={07F90A05-1656-4504-8C38-D4FE521AAF2B}), just launched in January and is a significant resource for educators, students, parents and community members who want to learn the nuts and bolts of RJE. In the book you hear from students, teachers and administrators in the Oakland Unified SD who shared their stories with Martha.
+
+> Martha is President and Founder of [RJAE Consulting](https://www.rjaeconsulting.com/), Consulting Services for Social Impact organizations.
+
+[View the webcast segments synchronized with Slides Here](https://instantteleseminar.com/Events/107468076)
 
 #### [Conflict In The Comments with Dominic Barter & Rivera Sun](https://podcasts.apple.com/us/podcast/conflict-in-the-comments-with-dominic-barter-rivera-sun/id918262205?i=1000426048522) - DEC 18, 2018
-  > EVENT DESCRIPTION: Relationships are being created, nourished and sometimes destroyed in online spaces. Are there ways to nourish authentic dialogue and conflict resolution when things get ‘hot’ online? How can we deal with trolls - or friends and relatives acting like trolls - and getting through heated arguments to meaningful communication? Join Rivera Sun and […]
+
+> Relationships are being created, nourished and sometimes destroyed in online spaces. Are there ways to nourish authentic dialogue and conflict resolution when things get ‘hot’ online? How can we deal with trolls - or friends and relatives acting like trolls - and getting through heated arguments to meaningful communication?
+
+> These online skills can also translate into a toolbox that we can use in the street or around the dinner table to shift from fighting to opening hearts and minds.
+
+[Conflict In The Comments with Dominic Barter & Rivera Sun:::Presented by Nonviolence Now](https://instantteleseminar.com/Events/112106451)
 
 #### [Waking Up White: An Interview & Conversation with Author Debby Irving](https://podcasts.apple.com/us/podcast/waking-up-white-interview-conversation-author-debby/id918262205?i=1000431705581) - MAR 13, 2019
-  > Debby Irving is a racial justice educator, author, and public speaker. A community organizer and classroom teacher for 25 years, Debby Irving grappled with racial injustice without understanding racism as a systemic issue or her own whiteness as an obstacle to it. As general manager of Boston’s Dance Umbrella and First Night, and later as […]
+
+> [Debby Irving](https://debbyirving.com/) is a racial justice educator, author, and public speaker. A community organizer and classroom teacher for 25 years, Debby Irving grappled with racial injustice without understanding racism as a systemic issue or her own whiteness as an obstacle to it.
+
+> [Waking Up White](https://debbyirving.com/the-book/) is the book Debby Irving wishes someone had handed her decades ago. By sharing her sometimes cringe-worthy struggle to understand racism and racial tensions, she offers a fresh perspective on bias, stereotypes, manners, and tolerance. As she unpacks her own long-held beliefs about colorblindness, being a good person, and wanting to help people of color, she reveals how each of these well-intentioned mindsets actually perpetuated her ill-conceived ideas about race. She also explains why and how she’s changed the way she talks about racism, works in racially mixed groups, and understands the racial justice movement as a whole. Exercises at the end of each chapter prompt readers to explore their own racialized ideas. Waking Up White's personal narrative is designed to work well as a rapid read, a book group book, or support reading for courses exploring racial and cultural issues.
 
 #### [A Mini-Interview with Stephanie Lepp Plus Reckonings Episode 21: A survivor and her perpetrator find justice](https://podcasts.apple.com/us/podcast/mini-interview-stephanie-lepp-plus-reckonings-episode/id918262205?i=1000431794127) - MAR 14, 2019
-  > RJ on The Rise Host Molly Rowan Leach interviews Stephanie Lepp of Reckonings, a powerful podcast exploring how we change our hearts and minds. Molly and Stephanie's conversation introduces Reckonings episode #21, which illuminates the story of two college students, sexual harm and misconduct, and their restorative justice process. Thank you to Stephanie, and to […]
+
+> RJ on The Rise Host Molly Rowan Leach interviews Stephanie Lepp of Reckonings, a powerful podcast exploring how we change our hearts and minds. Molly and Stephanie's conversation introduces Reckonings episode #21, which illuminates the story of two college students, sexual harm and misconduct, and their restorative justice process.  Thank you to Stephanie, and to David Karp from Skidmore College's PRISM Program, for partnering with us to offer this powerful podcast to you. Part 1 is the mini-interview, and Part 2 is the original episode.
+
+> ‘I wanted him to be standing with me, and telling our story with me, in a way that didn't just write us into the categories of angelic survivor and evil assaulter. And I think I even told the audience -- if this person comes forward to tell his story, I hope that you’ll listen to him.’
+
+> What does it sound like for a survivor to get her needs met? What does it sound like for a perpetrator to take responsibility for his sexual abuse of power?
+
+> From [Reckonings](http://www.reckonings.show/): Heartfelt thanks to the Friend Foundation, Varda Rabin, and David Karp at the [Campus PRISM Project](https://www.skidmore.edu/campusrj/prism.php), which helps universities explore the possibility of applying restorative justice to sexual assault.
+
+> [Transcript: Right here](http://www.reckonings.show/transcript21.html)
 
 #### [David Hooker on Race, Implicit Bias & Restorative Practice](https://podcasts.apple.com/us/podcast/david-hooker-on-race-implicit-bias-restorative-practice/id918262205?i=1000431794128) - MAR 14, 2019
-  > Scholar, Professor, Attorney and cross-practice expert in a wide range of conflict-related fields, David Hooker currently serves as Associate Professor of the Practice of Conflict Transformation and Peacebuilding at the Kroc Institute at the University of Notre Dame. David coined the term traumagenic,and it is a framing piece setting the tone for this highly recommended article on healing historical harm […]
 
-#### [Decolonizing Wealth with Edgar Villanueva](https://podcasts.apple.com/us/podcast/decolonizing-wealth-with-edgar-villanueva/id918262205?i=1000439079025) - MAY 22, 2019
-  > Edgar Villanueva's Decolonizing Wealth is creating a global buzz around the framing question, "What if money could heal us?" In this powerful hour interview, Edgar unpacks the virus of colonization and its impact on philanthropy--who makes the rules, the choices to fund or not to fund, and more. His steps for healing our philanthropy include a proper recognition […]
+> Scholar, Professor, Attorney and cross-practice expert in a wide range of conflict-related fields, [David Hooker](https://kroc.nd.edu/faculty-and-staff/david-anderson-hooker/) currently serves as Associate Professor of the Practice of Conflict Transformation and Peacebuilding at the Kroc Institute at the University of Notre Dame.
+
+> David coined the term traumagenic,and it is a framing piece setting the tone for this highly recommended article on healing historical harm
+
+[Transforming Historical Harms](https://www.racialequitytools.org/resourcefiles/TransformingHistoricalHarms.pdf)
+
+> As David mentions in this dialogue, he is working with the Equal Justice Initiative's Community Remembrance Project, to collect soil at all lynching grounds in Fulton County, GA (Atlanta), and invites people from anywhere in the US and beyond to submit soil samples as well.
+
+> David is author of [The LIttle Book of Transformative Community Conferencing](https://www.amazon.com/Little-Book-Transformative-Community-Conferencing/dp/1680991663), as part of the [Little Books on Justice & Peacebuilding Series](https://emu.edu/cjp/resources/little-books)
+
+[David Anderson Hooker on Trauma and Legacy](https://www.youtube.com/watch?v=4TzrvWhATUA)
+
+#### [Decolonizing Wealth with Edgar Villanueva](https://restorativejusticeontherise.org/decolonizing-wealth-with-edgar-villanueva/) - MAY 22, 2019
+
+> In this powerful hour interview, Edgar unpacks the virus of colonization and its impact on philanthropy--who makes the rules, the choices to fund or not to fund, and more. His steps for healing our philanthropy include a proper recognition of the problems, which are critical, and a turning back to what might be termed Indigenous perspectives and practices around giving--seeing our work and lives as interconnected and providing equal voices to communities most in need and impacted by sub par funding and services.  We talk about the importance of the Native peoples view of life as "7 back, 7 forward"--meaning, living and giving in a way that recalls our ancestors and thinks about the world our children and their children will inherit.This is a rich discussion which reveals viable steps and solutions to local and global philanthropy.
+
+[www.decolonizingwealth.com](https://www.decolonizingwealth.com/)
+
+[Decolonizing Wealth with Edgar Villanueva: A Public Interview & Forum](https://instantteleseminar.com/Events/115442112)
 
 #### [Restorative Justice Growing Strong in DC](https://podcasts.apple.com/us/podcast/restorative-justice-growing-strong-in-dc/id918262205?i=1000444150262) - JUL 10, 2019
-  > Restorative Justice Growing Strong in DC: A Roundtable with Seema Gajwani and Roman Haferd from the Office of The Attorney General - Washington, DC; and Rashid Hughes and Tarek Maassarani of Restorative DC. In this Roundtable from the National Association for Community and Restorative Justice's 7th Conference, held in Denver, CO, June 14-16, 2019, host […]
 
-#### [Elevating Youth Voices & Oakland's Recent Budget Cuts: An interview with Youth Leadership](https://podcasts.apple.com/us/podcast/elevating-youth-voices-oaklands-recent-budget-cuts/id918262205?i=1000445173244)  > In this podcast episode feature (37m), we had the honor of speaking with Griffen Castillo and Yota Omosowho, whose work within the Oakland United School District (OUSD) - JUL 23, 2019
- to elevate the use and understanding of restorative justice has been critical. Griffen and Yota are Youth Leadership with a National Committee of Youth in Restorative Justice that […]
+> In this Roundtable from the National Association for Community and Restorative Justice's 7th Conference, held in Denver, CO, June 14-16, 2019, host Molly Rowan Leach sat down with the people behind the exponential expansion of restorative justice cross-sector in our nation's capital. We talk restorative justice in schools, and how the Prosecutor's office in DC realized how effective RJ is, and has grown its program which started in 2016 to include a wide range of cases. We also talk resistances, doubts in implementation, and how Restorative DC, a cross-profession hub for restorative justice took root almost a decade ago and has spurred powerful collaborations and systems work, expanding rapidly within human systems from schools to federal courts and beyond.
 
-#### [Elevating Justice Within Courts, Schools & The Criminal Justice System From a Prosecutor's Perspective](https://podcasts.apple.com/us/podcast/elevating-justice-within-courts-schools-criminal-justice/id918262205?i=1000446754389)  > Senator Pete Lee (CO) - AUG 12, 2019
-, a champion for restorative justice or "RJ" in Colorado and the US for decades, interviews Prosecutor Adam Foss who is Founder and Executive Director of Prosecutor Impact at the National Association for Community and Restorative Justice Conference this past June in Denver, CO. Adam dives in to answer Sen. Lee's poignant and direct questions about stumbling blocks, misperceptions, […]
+- [Seema Gajwani](https://www.obama.org/fellowship/2019-fellows/seema-gajwani/) is a 2019 Obama Foundation Fellow and Special Counsel on Juvenile Justice Reform at the Office of The Attorney General (OAG), District of Columbia. Seema played a founding role in the implementation of restorative justice in 2016.
+- Robert ("Roman") Haferd is the Restorative Justice Coordinator, Office of the Attorney General for the District of Columbia. 
+- [Rashid Hughes](https://www.rashidhughes.com/) is the Restorative Justice and Youth Leadership Program Specialist for Restorative DC
 
-#### [Hip Hop and Restorative Justice: Youth Leadership from Circles & Ciphers of Chicago](https://podcasts.apple.com/us/podcast/hip-hop-restorative-justice-youth-leadership-from-circles/id918262205?i=1000447537392)  > Special 25 minute short form interview We were lucky to have the opportunity to sit down with Marko, Akeem and Stephan, all a part of Circles and Ciphers, located in North Chicago, during the 7th Conference on Community and Restorative Justice hosted by the NACRJ and by RJ Colorado, in Denver (June 2019) - AUG 22, 2019
- Circles & […]
+[D.C. Prosecutors, Once Dubious, Are Becoming Believers In Restorative Justice](https://www.npr.org/2019/07/02/735506637/d-c-prosecutors-once-dubious-are-becoming-believers-in-restorative-justice)
 
-#### [Advocacy, Organizing and Restorative Justice with Justice Matters of Lawrence, KS](https://podcasts.apple.com/us/podcast/advocacy-organizing-restorative-justice-justice-matters/id918262205?i=1000447641205) - AUG 23, 2019
-  > Justice Matters is an Interfaith non-profit organization consisting of religious congregations joined together to fulfill the following mission: To move Lawrence toward a city where justice rolls down like a mighty river To surface, understand, and address issues of justice in the region To strengthen understanding of the scriptural imperative to do justice slideviewer: https://instantteleseminar.com/Events/115081815
+> With the help of a U.S. Department of Justice Smart Prosecution grant, OAG has expanded its use of restorative justice and has hired five full-time staffers for this program. By expanding this data-driven program in communities around the District, OAG is addressing community conflicts directly in neighborhoods experiencing violence. While other jurisdictions have implemented restorative justice programs, OAG is the first public safety agency to do so in-house, where restorative justice specialists work alongside prosecutors. This innovative approach to juvenile justice helps reduce recidivism and support better outcomes for District youth.
+
+> Restorative DC emerged from the [DC Alliance for Restorative Practices (DCARP)](https://dcallianceforrestorativepractices.wordpress.com/), a broad-based network of educators, police, agency officials, restorative practitioners, community-based organizations, youth workers, and juvenile justice advocates that formed in 2012. Since its establishment in 2015, Restorative DC has carried forward this collaborative spirit, cultivating interagency cooperation and partnership with other community-based organizations. Restorative DC is a project of SchoolTalk, a local nonprofit with over a decade of working with youth to improve conflict resolution and special education in the District. Restorative DC currently supports restorative change in dozens of DC schools with onsite technical assistance, as well as offering District-wide professional development and restorative services to education, juvenile justice, and other agencies.
+
+[Restorative Justice Program at the Office of The Attorney General, District of Columbia](https://oag.dc.gov/public-safety/restorative-justice-program)
+[Restorative DC](http://www.restorativedc.org)
+
+#### [Elevating Youth Voices & Oakland's Recent Budget Cuts: An interview with Youth Leadership](https://restorativejusticeontherise.org/elevating-youth-voices-oaklands-recent-budget-cuts-an-interview-with-youth-leadership/) - JUL 23, 2019
+
+> Griffen Castillo and Yota Omosowho are Youth Leadership with a National Committee of Youth in Restorative Justice that convened to present a featured Pre-Conference day-long workshop leading into the NACRJ's 7th Conference held in Denver, CO last month. Both Griffen, as a Student Adviser, and Yota, as a Student Board Member, also work with the OUSD School Board and additional key community teams to ensure that restorative justice continues to grow within this district which many consider to be the lead for this work within schools in our country.
+
+[Oakland Unified School District (OUSD) - Restorative Justice](https://www.ousd.org/restorativejustice)
+
+Interview Conducted at the NACRJ Denver Conference, June 14-16, 2019.
+
+#### [Elevating Justice Within Courts, Schools & The Criminal Justice System From a Prosecutor's Perspective](https://podcasts.apple.com/us/podcast/elevating-justice-within-courts-schools-criminal-justice/id918262205?i=1000446754389) - AUG 12, 2019
+
+> [Senator Pete Lee (CO)](https://peteleecolorado.com/restorative-justice/), a champion for restorative justice or "RJ" in Colorado and the US for decades, interviews Prosecutor [Adam Foss who is Founder and Executive Director of Prosecutor Impact](https://prosecutorimpact.com/) at the [National Association for Community and Restorative Justice](http://nacrj.org/) Conference this past June in Denver, CO.
+
+> ...stumbling blocks, misperceptions, and how restorative justice can better answer to both "lower level" cases as well as more serious ones, and how that supports persons harmed as well as the rehabilitation of parties committing offenses. This 15 minute segment also covers ACEs and how we look at justice from childhood onward using Trauma-Informed practices and restorative practices that are implemented as "upstream of conflict" practice, answering to these critical needs.
+
+> "A New Perspective for Prosecutors" one of [Prosecutor Impact's](http://prosecutorimpact.com/) driving principles, is also explained thoroughly. Adam Foss presented as a Keynote at the June conference, opening with a driving and powerful reminder that we must get uncomfortable to do justice. Special thanks to Senator Lee and Adam Foss and their subsequent and dedicated efforts.
+
+#### [Hip Hop and Restorative Justice: Youth Leadership from Circles & Ciphers of Chicago](https://restorativejusticeontherise.org/hip-hop-and-restorative-justice-youth-leadership-from-circles-ciphers-of-chicago/) - AUG 22, 2019
+
+> [Circles & Ciphers](http://www.circlesandciphers.org/) is a hip-hop infused restorative justice organization led by and for young people impacted by violence. Through art-based peace circles, education, and direct action we collectively heal and work to bring about the abolition of the prison-industrial complex.
+
+> In this short interview, Marko, Akeem and Stephan all share insights into how creativity and hip-hop answer to serious gaps in society, and how circles support strengthening youth empowerment and community. Truly inspiring.
+
+#### [Advocacy, Organizing and Restorative Justice with Justice Matters of Lawrence, KS](https://restorativejusticeontherise.org/advocacy-organizing-and-restorative-justice-with-justice-matters-of-lawrence-ks/) - AUG 23, 2019
+
+> [Justice Matters](https://www.justicemattersinkansas.org/) is an Interfaith non-profit organization consisting of religious congregations joined together to fulfill the following mission:
+> *   To move Lawrence toward a city where justice rolls down like a mighty river
+> *   To surface, understand, and address issues of justice in the region
+> *   To strengthen understanding of the scriptural imperative to do justice
+> [slideviewer - instantteleseminar.com](https://instantteleseminar.com/Events/115081815)
 
 #### [Lorenn Walker, Restorative Lawyer & Director of Hawai'i Friends for Restorative Justice](https://podcasts.apple.com/us/podcast/lorenn-walker-restorative-lawyer-director-hawaii-friends/id918262205?i=1000450144724) - SEP 17, 2019
-  > Lorenn Walker is a Hawai’i based health educator and a restorative & peacemaking lawyer who uses public health and solution-focused approaches to address trauma and deal with social problems commonly addressed by legal and criminal justice systems. She designs, implements, researches, writes and publishes on a variety of innovations including restorative practices and solution focused approaches. […]
 
-#### [Writing As Restorative Vehicle: Restoring Voice, Restoring Balance with Diane Raptosh](https://podcasts.apple.com/us/podcast/writing-as-restorative-vehicle-restoring-voice-restoring/id918262205?i=1000451474903) - SEP 27, 2019
-  > Diane Raptosh is a Professor and cutting-edge advocate and founder of numerous programs relating to transforming our justice system. She teaches writing within prisons and works one to one with male and female inmates struggling to recover their worth and their voice. She is also co founder of the College of Idaho's Prison Experience Seminar […]
+> [Lorenn Walker](http://www.lorennwalker.com/) is a Hawai’i based health educator and a restorative & peacemaking lawyer who uses public health and solution\-focused approaches to address trauma and deal with social problems commonly addressed by legal and criminal justice systems.
 
-#### [The Redemption Project with Van Jones](https://podcasts.apple.com/us/podcast/the-redemption-project-with-van-jones/id918262205?i=1000455645875) - OCT 31, 2019
-  > Discussion Series. Episode 3: His daughter was murdered & he sat down with the teen who took her life. With Donald Lacy of the LoveLife Foundation and Karena Montag of Stronghold. https://s3.amazonaws.com/RestorativeJusticeOnTheRise_Podcasts_ShowArchives/RedemptionProjectDiscussions/DiscussionThree.mp3
+> She designs, implements, researches, writes and publishes on a variety of innovations including restorative practices and solution focused approaches. Her purpose is to improve the justice system and individuals’ access to justice. She has a special interest in helping disenfranchised people including foster youth, homeless people, crime victims, incarcerated people, people with substance abuse problems, loved ones of all affected, find what they need for healing.
+
+[Hawai’i Friends of Restorative Justice](http://www.hawaiifriends.org/)
+
+#### [Writing As Restorative Vehicle: Restoring Voice, Restoring Balance with Diane Raptosh](https://restorativejusticeontherise.org/writing-as-restorative-vehicle-restoring-voice-restoring-balance-with-diane-raptosh/) - SEP 27, 2019
+
+> [Diane Raptosh](http://www.dianeraptosh.com/) is a Professor and cutting-edge advocate and founder of numerous programs relating to transforming our justice system. She teaches writing within prisons and works one to one with male and female inmates struggling to recover their worth and their voice.
+> 
+> She is also co founder of the [College of Idaho](https://www.collegeofidaho.edu/directory/diane-raptosh)'s [Prison Experience]() Seminar and [Course](https://iq2prod1.smartcatalogiq.com/en/Catalogs/College-of-Idaho/current/Undergraduate-Catalog/Courses/IND-Interdepartmental/300/IND-368), which has evolved over the past 20 years and has been a leading catalyst within the state of Idaho towards education, advocacy and action. Students have the ability to opt into working within prisons to teach writing and to participate in profoundly insightful forums and discussions on-campus, that have featured leading advocates in the justice transformation movement.
+
+> A highly active ambassador for poetry, she has given poetry workshops everywhere from riverbanks to maximum security prisons. She teaches creative writing and co\-directs the program in Criminal Justice/Prison Studies at The College of Idaho. Her most recent book of poems, *Human Directional, *was published by Etruscan Press in 2016. Her sixth book of poems, *Dear Z: The Zygote Epistles *will be published by Etruscan Press in 2020.
+
+#### [The Redemption Project with Van Jones](https://restorativejusticeontherise.org/the-redemption-project-with-van-jones/) - OCT 31, 2019
+
+> Discussion Series. Episode 3: His daughter was murdered & he sat down with the teen who took her life. With Donald Lacy of the LoveLife Foundation and Karena Montag of Stronghold. 
 
 #### [SaulPaul, a Musician with A Message](https://restorativejusticeontherise.org/saulpaul-a-musician-with-a-message/) - OCT 31, 2019
 
-Mini-interview from the NACRJ (National Association of Community and Restorative Justice) conference in Denver USA (June 2019). In this special short, SaulPaul tells us about his experiences as a formerly incarcerated young black man and how it shaped his extraordinary work and music. SaulPaul was a keynote performance featured at this year's (2019) NACRJ conference in Denver, CO and his performances and various works have been featured in major venues and media, inspiring and opening the minds of millions. 
+> Mini-interview from the NACRJ (National Association of Community and Restorative Justice) conference in Denver USA (June 2019). In this special short, SaulPaul tells us about his experiences as a formerly incarcerated young black man and how it shaped his extraordinary work and music. SaulPaul was a keynote performance featured at this year's (2019) NACRJ conference in Denver, CO and his performances and various works have been featured in major venues and media, inspiring and opening the minds of millions. 
 
 [Saul Paul](http://www.SaulPaul.com)
 
-#### [Exclusive: Cornel West on Restorative Justice](https://podcasts.apple.com/us/podcast/exclusive-cornel-west-on-restorative-justice/id918262205?i=1000470562091) - APR 5, 2020
-  > From the NACRJ 2015 Conference, Cornel West gives an extraordinary, poetic, rhythmic keynote. Credit: NACRJ, Production & Edits RJ on The Rise.
+#### [Exclusive: Cornel West on Restorative Justice](https://restorativejusticeontherise.org/exclusive-cornel-west-on-restorative-justice/) - APR 5, 2020
+
+> From the NACRJ 2015 Conference, Cornel West gives an extraordinary, poetic, rhythmic keynote.
+
+> [National Association of Community and Restorative Justice](http://www.nacrj.org) promotes effective forms of justice that are safe, just, equitable, sustainable, reparative and socially constructive, addressing not only crime, but conflict, incivility, injustice and all forms of harm. NACRJ hosts the biennial National Conference of Community and Restorative Justice, and provides supports for members.
 
 
-#### [How Colorado Passed RJ Legislation: The Origins from 2013](https://podcasts.apple.com/us/podcast/how-colorado-passed-rj-legislation-the-origins-from-2013/id918262205?i=1000470562092) - APR 5, 2020
-  > In North America Colorado is considered one of many states progressing in restorative justice particular to coalition building that is spurred by legislative buy in. This archive feature is from 2013 and is a chronicle of the movement and its progress in passing legislation that supported the now-growing coalition and programs supported by a self-funding […]
+#### [How Colorado Passed RJ Legislation: The Origins from 2013](https://restorativejusticeontherise.org/how-colorado-passed-rj-legislation-the-origins-from-2013/) - APR 5, 2020
 
+> In North America Colorado is considered one of many states progressing in restorative justice particular to coalition building that is spurred by legislative buy in.  This archive feature is from 2013 and is a chronicle of the movement and its progress in passing legislation that supported the now-growing coalition and programs supported by a self-funding measure stipulation as part of the law.
+> 
+> This panel features the amazing Deb Witzel whose tenure in restorative justice practices and leadership in advocacy and movement building in Colorado has played a key role in where things stand today. Also speaking is Senator Pete Lee and Officer Gregory Ruprecht, both equally extraordinary in their commitment to restorative justice.
 
-#### [Listening From Essence, Dialogue or Death: James O'Dea](https://podcasts.apple.com/us/podcast/listening-from-essence-dialogue-or-death-james-odea/id918262205?i=1000470562089) - APR 5, 2020
-  > In this keynote from 2009 in Boise, Idaho, at the Living in The Fire of Change Conference, James O'Dea recounts in extraordinary detail the power of dialogue, listening, and the imperative of restorative justice, healing justice. Originally titled "Roots and Stars", we wanted to illuminate the fullness of this hour as a prophetic message for […]
+[HISTORY OF RJ IN CO 4](https://www.rjcolorado.org/_literature_161128/Restorative_Justice_History)
 
-#### [Evolving in Real Time: Crisis as Birth with Barbara Marx Hubbard](https://podcasts.apple.com/us/podcast/evolving-in-real-time-crisis-as-birth-barbara-marx/id918262205?i=1000470562088) - APR 5, 2020
-  > "Real Time Evolution and Crisis as Birth", from 2009 In 2009, the late and extraordinary Dr. Barbara Marx Hubbard spoke at a conference we produced with an extraordinary and devoted community team in Boise, ID. Dr. Hubbard was a candidate for Vice President and an author of multiple best sellers outlining our moment in time--crisis--as […]
+> The purpose of this project was to develop an historical narrative that describes the evolution of restorative justice policy and programming to better understand how it has grown and evolved in the state of Colorado since its introduction in the mid-1990s. 
 
+#### [Listening From Essence, Dialogue or Death: James O'Dea](https://restorativejusticeontherise.org/listening-from-essence-dialogue-or-death-james-odea/) - APR 5, 2020
+
+> In this keynote from 2009 in Boise, Idaho, at the Living in The Fire of Change Conference, [James O'Dea](https://jamesodea.com/) recounts in extraordinary detail the power of dialogue, listening, and the imperative of restorative justice, healing justice.
+
+> Originally titled "Roots and Stars", we wanted to illuminate the fullness of this hour as a prophetic message for us all during these times. Packed with humor, storytelling, citations of major mystics and philosophers alike, and anecdotes from our world's most blatantly heinous atrocities.. of which James himself almost died, we come to a place of "tea among strangers, amidst the rubble", or the humanity that resides in all of us even amidst suffering and loss.
+
+[James O’Dea Fellow](https://noetic.org/profile/james-odea/)
+
+> James O’Dea is the award-winning author of The Conscious Activist, Cultivating Peace, Soul Awakening Practice and a contributor to multiple works in several fields. He is a former President of the Institute of Noetic Sciences, Washington office director of Amnesty International, and CEO of the Seva Foundation.
+
+#### [Evolving in Real Time: Crisis as Birth with Barbara Marx Hubbard](https://restorativejusticeontherise.org/evolving-in-real-time-crisis-as-birth-with-barbara-marx-hubbard/) - APR 5, 2020
+
+> In 2009, the late and extraordinary Dr. Barbara Marx Hubbard spoke at a conference we produced with an extraordinary and devoted community team in Boise, ID. Dr. Hubbard was a candidate for Vice President and an author of multiple best sellers outlining our moment in time--crisis--as a natural element of conscientious growth.
+
+https://en.wikipedia.org/wiki/Barbara_Marx_Hubbard
 
 #### [Rangimarie Naida Glavish: Reflections from Maori Traditions of Restorative Justice](https://podcasts.apple.com/us/podcast/rangimarie-naida-glavish-reflections-from-maori-traditions/id918262205?i=1000470562090) - APR 5, 2020
-  > From Oakland, June 2017, an interview with Rangimarie Naida Glavish on perspectives and practices from New Zealand in what is now called 'restorative justice'. This interview was an honor and was deeply sacred to us. 2017 National Conference hosted by RJOY NACRJ Dame Rangimarie Naida Glavish is a highly respected Iwi and Community Leader. […]
+
+> From Oakland, June 2017, an interview with Rangimarie Naida Glavish on perspectives and practices from New Zealand in what is now called 'restorative justice'. This interview was an honor and was deeply sacred to us. 2017 National Conference hosted by  [**RJOY**](http://www.rjoyoakland.org) - [NACRJ](http://www.nacrj.org)
+
+Dame Rangimarie Naida Glavish is a highly respected Iwi and Community Leader. Naida is currently employed as the Chief Tikanga Advisor/General Manager Maori with the He Kamaka Waiora, Maori Health, Waitemata and Auckland District Health Board.
+
+[Houhou Te Rongo 2018](https://www.restorativejusticeaotearoa.org.nz/images/A_Pathway_to_Resolution_and_Reconciliation.pdf)
 
 ## Resources
 
